@@ -1,2 +1,2 @@
-# hellow-wrod
-meu primeiro projeto
+# plis don`t make nothing 
+i will finish this.
